@@ -48,7 +48,6 @@ Despite their differences, they seemed to enjoy each other's company, and their 
 The conversation between Hluteko and Tshediso begins with casual greetings and an exchange of how they are doing.
 Hluteko teases Tshediso about using the name "Chris Brown" in a joke, and Tshediso clarifies that it is a reference to a diss track that Chris Brown released recently.
 They discuss their days, with Hluteko expressing that she is stuffed from eating too much and feeling lazy, while Tshediso shares that he is bored but took a walk outside to get some fresh air.
-
 As the conversation progresses, they engage in a lighthearted debate about the effectiveness of umbrellas, with Tshediso stating that men do not use them, and Hluteko arguing that this is not true.
 Tshediso claims that a raincoat is all a man needs, and Hluteko asks what he would do on a sunny day.
 Tshediso responds that he would wear a cap.
