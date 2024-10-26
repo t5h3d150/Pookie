@@ -143,6 +143,7 @@ The conversation then took a turn towards the topic of relationships and marriag
 Tshediso mentioned that he's not interested in marrying someone who doesn't have a prenuptial agreement, as he wants to protect his assets.
 Hluteko responded that this might be a turn-off for some people, but Tshediso emphasized that financial security is important to him.
 The conversation continued with a discussion about the importance of financial decisions in relationships and how they shouldn't be made solely for the sake of love.
+
 **Summary of the conversations between Hluteko and Tshediso - Part 2**
 The conversation continued with a discussion about the moon landing, with Hluteko asking Tshediso if he thinks it was real.
 Tshediso responded that he's skeptical about the moon landing, but Hluteko jokingly warned him about being a potential victim for cults.
@@ -151,6 +152,7 @@ Tshediso jokingly responded that he's an anti-American cult leader, but Hluteko 
 The conversation then took a turn towards the topic of social media, with Hluteko expressing her curiosity about Tshediso's Instagram reels.
 Tshediso responded that his reels are an expression of his personality, and Hluteko jokingly asked if he has any ulterior motives.
 The conversation continued with a discussion about cats and pets, with Tshediso expressing his love for dogs and Hluteko sharing her experience with herding cows and goats.
+
 **Summary of the conversations between Hluteko and Tshediso - Part 3**
 The conversation continued with a discussion about social media and the way people present themselves online.
 Hluteko expressed her concern about the potential risks of sharing personal information online, and Tshediso reassured her that he's not interested in hacking or accessing her personal data.
@@ -159,6 +161,7 @@ Hluteko was surprised by this revelation, but Tshediso reassured her that he's n
 The conversation continued with a discussion about the importance of online security and the potential risks of using incognito mode.
 Tshediso emphasized that Tor is a secure browser that can protect users' online activity, and Hluteko jokingly responded that she's glad she doesn't have to fear for her life.
 The conversation then shifted to a discussion about America and its role in global politics, with Tshediso expressing his skepticism about the US government's intentions.
+
 **Summary of the conversations between Hluteko and Tshediso - Part 4**
 The conversation continued with a discussion about the potential risks of being targeted by the US government, with Hluteko jokingly warning Tshediso about the dangers of being a "threat" to national security.
 Tshediso responded that he's not interested in committing crimes, but he's willing to take risks to protect himself and his online activity.
