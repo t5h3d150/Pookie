@@ -199,7 +199,6 @@ The conversation ends on a friendly note, with Hluteko and Tshediso agreeing to 
 ## Week 3.3 of talking summary
 Hluteko and Tshediso's conversation covers a wide range of topics, from personal relationships and parenting to sex, kinks, and the intricacies of human behavior.
 They engage in a playful, sarcastic, and often humorous dialogue that showcases their comfort with each other.
-
 Their conversation begins with a discussion on parenting, with Tshediso expressing his concerns about the challenges of raising children.
 Hluteko responds by sharing her own thoughts on the matter, highlighting the importance of setting a good example for one's kids.
 The conversation then shifts to their personal relationships, with Hluteko sharing her experiences with masturbation and Tshediso discussing his own sex life.
@@ -587,17 +586,20 @@ Tshediso responds, and they delve into a discussion about topics such as insuran
 They also engage in lighthearted banter and tease each other about their interests and behaviors.
 The conversation also touches on topics like racism, sexism, and relationships.
 Throughout the conversation, they use slang, emojis, and humor to communicate their thoughts and feelings.
+
 **Summary of the Conversation Between Hluteko and Tshediso - Part 2**
 As the conversation progresses, Hluteko and Tshediso discuss more personal topics, including their relationships and desires.
 Hluteko mentions that they are into sexting and are open to exploring their desires, but they also mention that they have boundaries and preferences.
 Tshediso shares their own thoughts on relationships and intimacy, and they both engage in a lighthearted discussion about their compatibility.
 They also joke about taking a test to determine who is the more freaky partner, but they ultimately agree that the test is not an accurate representation of their true desires.
+
 **Summary of the Conversation Between Hluteko and Tshediso - Part 3**
 Hluteko and Tshediso continue their conversation, discussing topics such as their interests, hobbies, and goals.
 Hluteko mentions that they are planning to leave Joburg soon and are looking forward to a break.
 Tshediso shares their own thoughts on work and life, and they both commiserate about the challenges of adulting.
 They also engage in a humorous discussion about a hypothetical plan to steal money, with Hluteko suggesting that ransom is a safer and more convenient option.
 Tshediso agrees, but notes that this is all just hypothetical.
+
 **Summary of the Conversation Between Hluteko and Tshediso - Part 4**
 As the conversation comes to a close, Hluteko and Tshediso reflect on their lives and relationships.
 Hluteko mentions that they are currently on antihistamines to treat a fish allergy and are trying to build up their tolerance.
@@ -611,15 +613,18 @@ Hluteko and Tshediso engaged in a casual conversation that covered various topic
 They started by discussing social media, with Tshediso mentioning that some people take it too seriously.
 The conversation then shifted to their personal interests, with Hluteko mentioning that they have a long list of pet peeves.
 Tshediso shared some of his own pet peeves, including people who try hard to impress others and those who disrupt conversations.
+
 **Summary, Part 2**
 The conversation took an interesting turn when Hluteko mentioned that they hate people who wear "peepers" (glasses worn for fashion purposes) and Tshediso shared that he is legally blind.
 Hluteko also expressed their dislike for certain behaviors in relationships, such as lying and stubbornness.
 Tshediso mentioned that he has standards in relationships and shared some of his own deal-breakers, including rudeness, unkindness, and self-centeredness.
+
 **Summary, Part 3**
 The conversation continued with Hluteko sharing their own list of relationship pet peeves, including lying, stubbornness, and lack of generosity.
 Tshediso found some of these points relatable and humorous.
 They also discussed their own preferences in relationships, with Tshediso mentioning that he wants to date someone who is similar to him.
 Hluteko jokingly said that they might be tempted to neglect their own interests in a relationship.
+
 **Summary, Part 4**
 The conversation concluded with Hluteko and Tshediso discussing their views on the current state of the world.
 Tshediso expressed his dislike for the current economic and political situation in their country.
@@ -633,16 +638,19 @@ The conversation between Hluteko and Tshediso is quite vast and diverse, coverin
 The conversation starts with Hluteko sharing her thoughts on relationships and how she can't control her behavior around certain people.
 Tshediso responds by sharing his thoughts on long-term relationships and how he believes social media has affected the way people interact with each other.
 The conversation then shifts to a discussion about cults and how they can be formed by targeting vulnerable individuals.
+
 **Summary 2:**
 As the conversation progresses, Hluteko and Tshediso discuss their interests and hobbies.
 Hluteko reveals that she enjoys watching commentary content, video essays, and cooking shows on YouTube.
 Tshediso shares his interest in formula racing games and his attempts to improve his skills by watching tutorials and simulation videos.
 The conversation then takes a humorous turn as Hluteko teases Tshediso about his love for anime and dark fantasy.
 Tshediso responds by sharing his favorite anime genre, dark fantasy, and introducing Hluteko to a new series.
+
 **Summary 3:**
 The conversation takes a darker turn as Hluteko and Tshediso discuss the potential risks of social media and the impact it has on relationships.
 Hluteko shares her concerns about the potential for manipulation and control in relationships, while Tshediso shares his thoughts on how social media can create unrealistic expectations and standards.
 The conversation then shifts to a discussion about the importance of communication and honesty in relationships.
+
 **Summary 4:**
 As the conversation comes to a close, Hluteko and Tshediso share their thoughts on various topics such as the importance of having one's own money, the potential risks of being an influencer, and the impact of social media on mental health.
 The conversation ends on a lighthearted note, with Hluteko and Tshediso sharing their favorite memes and jokes.
@@ -650,11 +658,9 @@ Throughout the conversation, it is clear that Hluteko and Tshediso have a strong
 
 ## Week 10.3 of talking summary
 The conversation between Hluteko and Tshediso is a lengthy and informal exchange that covers a wide range of topics, from food preferences to personal relationships, and even delves into philosophical discussions about math and life.
-
 The conversation starts with Hluteko and Tshediso discussing food, with Hluteko sharing her favorite fruits and Tshediso responding with his own preferences.
 They also exchange opinions on vegetables, junk food, and other culinary topics.
 This lighthearted discussion is accompanied by Tshediso's occasional humorous remarks and teasing of Hluteko's food choices.
-
 As the conversation progresses, the topics become more serious, with Hluteko and Tshediso discussing their personal relationships and what they look for in a partner.
 Hluteko shares her thoughts on submission and power dynamics in relationships, which Tshediso listens to with interest and responds with thoughtful comments.
 This part of the conversation provides insight into Hluteko's personality and her views on relationships.
@@ -759,17 +765,20 @@ The conversation then takes a turn towards more serious topics, including the co
 Hluteko expresses their reservations about such relationships, citing the importance of trust and communication.
 Tshediso shares his perspective, highlighting the complexities of such relationships and the need for rules and boundaries.
 The conversation also touches on the importance of respecting individual boundaries and consent.
+
 **Summary of Chat 2:**
 The conversation delves deeper into the topic of relationships, with Hluteko sharing their views on marriage and partnership.
 Hluteko believes that a successful relationship requires trust, respect, and open communication.
 Tshediso shares his reservations about marriage, citing the complexities and potential challenges that arise.
 He highlights the importance of understanding the differences between relationships and marriage, including the legal and financial implications.
 Hluteko counters, arguing that marriage should not be viewed as a complicated or burdensome institution, but rather as a natural progression of a loving relationship.
+
 **Summary of Chat 3:**
 The conversation continues, with Hluteko and Tshediso discussing various topics, including the role of women in society and the challenges of relationships.
 Hluteko shares her views on the importance of mutual respect and understanding in relationships, while Tshediso highlights the need for boundaries and communication.
 The conversation also touches on the topic of beauty standards, with Hluteko joking about the importance of a man's wallet.
 Tshediso responds, playfully teasing Hluteko about her priorities.
+
 **Summary of Chat 4:**
 The conversation concludes with a discussion on the differences between relationships and marriage.
 Hluteko argues that marriage should be viewed as a natural progression of a loving relationship, rather than a complicated or burdensome institution.
@@ -781,7 +790,6 @@ Despite their differences in opinion, the conversation remains respectful and en
 The conversation between Hluteko and Tshediso started with Hluteko stating that she's ready for a "glow up" and mentioning that she has a feeling Tshediso already knows something.
 The conversation quickly took a turn, with Hluteko joking about how she would get all the "baddies" if she were a guy.
 Tshediso responded by asking if this was a rhetorical question, and Hluteko replied that she was just messing around.
-
 As the conversation continued, the two started discussing relationships and marriage.
 Tshediso mentioned that he believes marriage is not just like a job, but rather a demanding partnership.
 He also stated that he doesn't think marriage should be treated as an arrangement, but rather as a commitment between two people.
@@ -795,7 +803,6 @@ Tshediso responded by saying that he thinks Hluteko is a huge fan of indoor date
 The conversation ended with Tshediso asking Hluteko if she wants to tell him something, and Hluteko responding by saying that she doesn't know what he's talking about.
 Throughout the conversation, it's clear that Hluteko and Tshediso have a playful and flirtatious dynamic.
 They joke around and tease each other, but also have deeper conversations about relationships and personal preferences.
-
 Hluteko seems to be someone who values honesty and openness in relationships, and is not afraid to speak her mind.
 She's also someone who enjoys pushing boundaries and exploring new ideas, as evidenced by her jokes about gangbang scenarios and her interest in fantasy scenarios.
 On the other hand, Tshediso seems to be someone who values commitment and partnership in relationships.
@@ -820,15 +827,18 @@ Hluteko mentioned she still had community service hours to complete, while Tshed
 The conversation then shifted to a discussion about their academic background, with Hluteko sharing her struggles with physics.
 Tshediso also brought up the topic of Neuralink, a neurotechnology company founded by Elon Musk, and its potential implications.
 Hluteko expressed her concerns about the technology, citing security and health risks.
+
 **Summary of Chat Between Hluteko and Tshediso (Part 2)**
 The conversation continued with a discussion about Neuralink and its potential impact on society.
 Tshediso mentioned that the technology could be used to control computers with one's thoughts, but also raised concerns about hacking and network security.
 Hluteko shared her thoughts on the potential benefits of the technology, such as helping people with learning disabilities.
 However, she also expressed her reservations about the technology's potential risks and the impact it could have on society.
+
 **Summary of Chat Between Hluteko and Tshediso (Part 3)**
 The conversation then shifted to a more casual tone, with Hluteko sharing her thoughts on various topics, including her favorite foods, her experience with memes, and her opinions on social issues.
 Tshediso also shared his thoughts on these topics, and the two exchanged humorous banter about their personal preferences.
 Hluteko also mentioned her interest in conspiracy theories, which led to a discussion about the potential implications of some of these theories.
+
 **Summary of Chat Between Hluteko and Tshediso (Part 4)**
 The conversation concluded with a discussion about Hluteko's daily life, including her job and her social interactions.
 She mentioned that she values her alone time and prefers to spend her days lounging around and browsing the internet.
@@ -840,17 +850,20 @@ The conversation ended on a lighthearted note, with the two friends exchanging h
 The conversation between Hluteko and Tshediso begins on a lighthearted note, with both individuals exchanging jokes and teasing each other.
 Hluteko mentions that some things are weird, but Tshediso responds with sarcasm, calling Hluteko a "weirdo." The conversation then shifts to a discussion about how people might perceive certain things, with Tshediso stating that time will tell and that Hluteko's thoughts on the matter are valid.
 The tone of the conversation remains casual and playful throughout this section.
+
 **Summary Part 2: Burning Down a Company and Frustrations**
 The conversation takes a darker turn when Tshediso jokingly mentions burning down a company because he wants to.
 Hluteko responds with shock and asks if Tshediso is serious.
 Tshediso clarifies that he was just frustrated with work and didn't mean to be taken literally.
 The conversation then moves on to a discussion about Hluteko's thoughts on why some people might be against certain things, such as sex work.
 Hluteko shares their perspective on the matter, and Tshediso responds with interest and engagement.
+
 **Summary Part 3: Expensive Hobbies and Capitalism**
 The conversation shifts to a discussion about expensive hobbies and capitalism.
 Hluteko mentions that they looked up racing sim rigs and were shocked by the prices.
 Tshediso shares their own interests in racing sim rigs and explains that they can be expensive because they are high-quality products.
 The conversation then moves on to a discussion about how people with expensive hobbies can afford them, with Tshediso joking that they need to make more money.
+
 **Summary Part 4: More Lighthearted Conversations and Memes**
 The conversation ends on a lighthearted note, with both individuals sharing memes and jokes.
 Hluteko mentions that they had a "major blunder" the previous day, but Tshediso reassures them that it's not a big deal.
@@ -912,18 +925,21 @@ Hluteko initially expresses disappointment and frustration with a video she crea
 Tshediso offers words of encouragement, but also engages in playful teasing and joking.
 The conversation touches on Hluteko's fear of snakes and her desire to avoid casual relationships.
 Tshediso playfully pushes her to consider the idea, but ultimately respects her boundaries.
+
 **Summary 2**
 As the conversation continues, Hluteko and Tshediso delve into more serious topics, including the concept of Xor (exclusive or) and discrete set theory.
 Hluteko struggles to understand these concepts, and Tshediso tries to explain them in simple terms.
 The conversation also touches on Hluteko's reservations about investing in relationships, citing her fear of being hurt.
 Tshediso offers words of reassurance, but also acknowledges the complexity of human relationships.
 The conversation also includes lighthearted moments, such as Hluteko's joking about not being a "spender" and Tshediso's teasing about her creativity.
+
 **Summary 3**
 The conversation takes a turn towards discussions of relationships, intimacy, and boundaries.
 Hluteko expresses her discomfort with the idea of sharing explicit content and her reservations about men who send unsolicited intimate pictures.
 Tshediso engages in playful banter, but also acknowledges Hluteko's concerns and expresses his own values around respect and consent.
 The conversation also touches on Hluteko's insecurities about her relationships and her fears of being hurt.
 Tshediso offers words of encouragement and support, acknowledging the complexity of human emotions.
+
 **Summary 4**
 As the conversation winds down, Hluteko and Tshediso engage in more lighthearted discussions, including Hluteko's surprise at Tshediso's interest in creating a sex tape and her joking about his "homework" assignment.
 The conversation also touches on Hluteko's preference for high heels and her curiosity about Tshediso's fascination with heels.
@@ -1002,7 +1018,6 @@ Their interactions are a testament to the power of friendship and the importance
 
 ## Week 15.2 of talking summary
 The conversation between Hluteko and Tshediso is extensive, covering a wide range of topics, from Oros (a type of flavored drink) to relationships, intimacy, and personal preferences.
-
 In the beginning, Hluteko mentions that she believes in Tshediso because of his love for Oros and finds it endearing.
 The conversation then shifts to a discussion about a mysterious scratch on Hluteko's body, with Tshediso speculating about the possible cause and Hluteko ruling out various explanations.
 The two also engage in a light-hearted conversation about Tshediso's unusual eating habits, including biting into instant noodles like chips.
@@ -1051,18 +1066,21 @@ They then discuss their days, with Hluteko mentioning that she had a bad day but
 Tshediso shares that he had a boring day at work but is feeling good after eating.
 The conversation then turns to various topics, including riding, animals, and the idea of scamming someone.
 Hluteko mentions that she doesn't think she could scam someone, and Tshediso agrees, saying that he doesn't think he could either.
+
 **Summary Part 2**
 The conversation continues with Hluteko and Tshediso discussing their interests and hobbies.
 Hluteko mentions that she likes to isolate herself when she's not feeling well, and Tshediso responds by saying that he's happy to be there for her when she needs him.
 They also discuss their favorite TV shows and movies, with Hluteko mentioning that she likes "Monsterverse" and "Jurassic Park." Tshediso shares that he enjoys Greek mythology and would like to start collecting cars and figurines.
 The conversation then turns to the topic of relationships, with Hluteko asking Tshediso if he's looking for a girlfriend.
 Tshediso responds by saying that he's not sure, but he's open to the idea.
+
 **Summary Part 3**
 The conversation takes a more serious turn when Hluteko and Tshediso discuss the topic of debt.
 Hluteko asks Tshediso if he knows who the world owes money to, and Tshediso responds by saying that it's a complex issue.
 Hluteko asks follow-up questions, and Tshediso explains that the term "world debt" can be misleading.
 Hluteko agrees, saying that it would be more accurate to use a term like "global aggregate debt" or "international debt aggregate." The conversation then turns to more lighthearted topics, with Hluteko and Tshediso discussing their favorite foods and TV shows.
 They also joke about the idea of scamming each other, with Hluteko saying that she would never actually do it.
+
 **Summary Part 4**
 The conversation ends with Hluteko and Tshediso discussing their daily lives.
 Hluteko mentions that she's been feeling tired and hasn't been sleeping well, and Tshediso responds by saying that he's been feeling better after getting some rest.
@@ -1107,15 +1125,12 @@ Ultimately, the conversation suggests that relationships are complex and multifa
 
 ## Week 17.1 of talking summary
 The conversation between Hluteko and Tshediso spans a wide range of topics, from their personal lives to discussions on various subjects such as penile transplants, body integrity identity disorder (BIID), and limb amputations.
-
 The conversation starts off on a light-hearted note, with Tshediso sharing that he has gotten his sleeping routine back on track.
 Hluteko responds with a humorous comment, saying that she had warned him not to indulge in too much "smooching." The conversation then takes a darker turn, with Tshediso sharing a personal struggle that he had been dealing with, which Hluteko responds to with empathy and support.
-
 As the conversation progresses, the topics become increasingly personal and intimate.
 Hluteko and Tshediso discuss their feelings and desires, with Hluteko sharing that she is attracted to Tshediso's dark side.
 Tshediso also reveals that he has a fascination with the idea of penis transplants and BIID.
 Hluteko is initially taken aback by this, but continues to engage in the conversation, sharing her thoughts and opinions on the matter.
-
 One of the most striking aspects of the conversation is the level of trust and comfort that Hluteko and Tshediso have with each other.
 They are able to discuss topics that are often considered taboo, and share their deepest fears and desires with each other.
 This level of intimacy and vulnerability is a testament to the strong bond that they share.
@@ -1176,6 +1191,7 @@ Their conversation is laced with humor, sarcasm, and witty remarks.
 They poke fun at each other's opinions and engage in light-hearted teasing.
 Despite the informal tone, they occasionally discuss serious topics, such as the challenges of relationships and the importance of finding common interests.
 The conversation is a testament to their friendly and playful dynamic.
+
 **Summary 2: Hluteko's Personality**
 Hluteko's personality shines through in the conversation.
 They come across as confident, outspoken, and unapologetic.
@@ -1184,6 +1200,7 @@ Hluteko also appears to be a curious and knowledgeable individual, sharing infor
 Their use of slang and colloquialisms adds to their playful and informal demeanor.
 Hluteko is not afraid to be sarcastic or use irony to make a point, often leaving Tshediso in stitches.
 Despite their bold personality, Hluteko also shows a more vulnerable side, expressing concern for their studies and their well-being.
+
 **Summary 3: Tshediso's Personality**
 Tshediso's personality is more subdued compared to Hluteko's, but he still manages to hold his own in the conversation.
 He comes across as a laid-back and easy-going individual, often responding with witty remarks and playful jabs.
@@ -1191,6 +1208,7 @@ Tshediso is not afraid to express his opinions, but he tends to do so in a more 
 Tshediso also shows a more empathetic side, offering words of encouragement and support to Hluteko.
 He is a good listener, often responding with thoughtful questions and comments that keep the conversation flowing.
 Despite his more reserved nature, Tshediso has a dry sense of humor that adds to the comedic dynamic of the conversation.
+
 **Summary 4: The Dynamics of the Conversation**
 The conversation between Hluteko and Tshediso is characterized by a strong sense of camaraderie and playfulness.
 They engage in a back-and-forth dynamic, often using humor and sarcasm to drive their points home.
@@ -1207,6 +1225,7 @@ Hluteko mentions that she has a good relationship with someone, although the per
 This sparks a conversation about how people treat each other in relationships and how some may be more willing to put up with abuse or negativity.
 The conversation also touches on the topic of marriage and how it's often viewed as a means of securing financial stability rather than a partnership based on love and mutual respect.
 Tshediso mentions that he thinks some people stay in loveless marriages due to security concerns, while Hluteko notes that some men may leave their wives for younger women, overestimating their market value.
+
 **Chat Summary (2/4)**
 Another significant topic in the conversation is food and cooking.
 Hluteko shares her preferences for pasta dishes, mentioning that she only accepts a few vegetables, such as mushrooms, broccoli, and cauliflower.
@@ -1215,6 +1234,7 @@ They also discuss their eating habits and how they approach mealtime.
 The conversation includes humorous moments, such as when Tshediso jokes about being a "cook" and Hluteko teasing him about his cooking skills.
 The conversation also delves into more serious topics, such as the discussion of a world record for the longest continuous kiss.
 Hluteko is surprised to learn that the record was set by a couple who kissed for over 24 hours, and Tshediso shares his thoughts on the matter, mentioning that he thinks it's an impressive feat.
+
 **Chat Summary (3/4)**
 The conversation continues with discussions about life, relationships, and personal experiences.
 Hluteko mentions that she's been feeling anxious and overwhelmed, and Tshediso offers words of encouragement and support.
@@ -1222,6 +1242,7 @@ They also discuss their daily routines and how they manage their time.
 The conversation also includes a discussion about the concept of "manufacturing chemistry" in relationships.
 Hluteko shares her thoughts on how people can create a connection with someone by manipulating or seducing them, and Tshediso responds with his own thoughts on the matter.
 This sparks a conversation about how relationships can be created or maintained through effort and intention.
+
 **Chat Summary (4/4)**
 The final part of the conversation touches on various topics, including culture, daily life, and personal experiences.
 Hluteko and Tshediso discuss their favorite foods, TV shows, and hobbies.
@@ -1253,15 +1274,18 @@ Hluteko and Tshediso have a lengthy and meandering conversation that covers vari
 The conversation is characterized by a mix of humor, curiosity, and lighthearted banter.
 Hluteko and Tshediso engage in a back-and-forth dialogue, often responding to each other's comments with clever remarks or witty observations.
 They also delve into more serious topics, such as the definition of responsibility and the implications of having multiple partners.
+
 **Summary 2: Relationship Dynamics and Opinions**
 Hluteko and Tshediso share their perspectives on relationships, with Hluteko emphasizing the importance of responsible behavior and Tshediso questioning the notion of responsibility in the context of multiple partners.
 They engage in a thought-provoking discussion about the complexities of human relationships, with Hluteko highlighting the potential risks and consequences of casual sex and Tshediso pointing out the importance of context and individual circumstances.
 Their conversation reveals a nuanced understanding of relationships and a willingness to engage in open and honest discussions.
+
 **Summary 3: Personal Anecdotes and Shared Experiences**
 Throughout the conversation, Hluteko and Tshediso share personal anecdotes and references to their lives, such as Hluteko's experience with medication and Tshediso's upcoming trip home.
 These shared experiences create a sense of camaraderie and trust, allowing them to engage in more in-depth and meaningful discussions.
 They also share humorous moments, such as Hluteko's joke about being a "permanent resident of delululand" and Tshediso's sarcastic comments about responsibility.
 These lighthearted moments add a playful tone to the conversation and demonstrate their ability to poke fun at themselves and each other.
+
 **Summary 4: Intellectual Curiosity and Debate**
 Hluteko and Tshediso engage in intellectual debates and discussions about various topics, including chemistry, responsibility, and relationships.
 They demonstrate a willingness to learn from each other and challenge each other's perspectives.
@@ -1308,12 +1332,14 @@ The conversation between Hluteko and Tshediso starts with a casual exchange abou
 They use a similar platform for communication, possibly WhatsApp.
 The conversation then takes a turn, and they start discussing various topics such as relationships, infidelity, and the concept of "horny jail." They also share their thoughts on online giveaways and whether they are real or not.
 The conversation is light-hearted, with both parties joking and teasing each other.
+
 **Summary Paragraph 2**
 As the conversation progresses, Hluteko and Tshediso delve into more serious topics, such as the concept of satanism and the idea that some people might be missing out on certain experiences.
 They also discuss the importance of honesty in relationships and the consequences of dishonesty.
 The conversation is filled with humorous remarks and playful jabs, but they also show a deeper understanding of each other's thoughts and feelings.
 They share their opinions on various topics, including the use of coffee machines, the cost of living, and the idea of taking risks.
 The conversation is engaging, and both parties are actively participating in the discussion.
+
 **Summary Paragraph 3**
 The conversation takes a turn when Hluteko starts sharing her thoughts on relationships, trust, and communication.
 She expresses her concerns about being hurt in relationships and the importance of honesty.
@@ -1321,6 +1347,7 @@ Tshediso responds with his own thoughts on the matter, sharing his experiences a
 The conversation becomes more personal, and they start to open up to each other.
 They discuss topics such as intimacy, trust, and the importance of communication in relationships.
 The conversation is filled with humor, but they also show a deeper understanding of each other's emotions and thoughts.
+
 **Summary Paragraph 4**
 As the conversation comes to a close, Hluteko and Tshediso reflect on their discussion.
 They joke about the topics they covered and the humorous remarks they made.
@@ -1338,18 +1365,21 @@ Hluteko agreed to try decaf for a week to see how it works out.
 The conversation then shifted to the topic of cars, with Tshediso mentioning that he likes classic cars and has a few favorites.
 Hluteko asked if he would be interested in a scavenger hunt to find out more about his favorite cars.
 Tshediso also mentioned that he has a fascination with cars, especially those with V8 engines.
+
 **Summary of Hluteko and Tshediso's Chat - Part 2**
 The conversation continued with a discussion about the Chase Bank system glitch, where people were able to withdraw money they didn't have.
 Hluteko and Tshediso both agreed that it would not be worth trying to exploit the glitch, as it would likely lead to trouble in the long run.
 The chat also touched on the topic of relationships, with Hluteko mentioning that they have trouble finding someone who is attractive and treats them well.
 Tshediso shared his thoughts on the matter, saying that people should not settle for someone who doesn't treat them well, regardless of how attractive they are.
 Hluteko agreed, saying that they would rather be alone than settle for someone who doesn't make them happy.
+
 **Summary of Hluteko and Tshediso's Chat - Part 3**
 The conversation continued with a discussion about online shopping, specifically Amazon.
 Hluteko mentioned that they have tried to buy things on Amazon US, but the shipping costs are too high.
 Tshediso agreed, saying that the shipping costs can be a major turnoff.
 The chat also touched on the topic of cars again, with Tshediso explaining the different types of engines and how they work.
 Hluteko asked him to explain the different types of cars, including Mercedes and BMW.
+
 **Summary of Hluteko and Tshediso's Chat - Part 4**
 The conversation continued with a discussion about Tshediso's project, which involves building a soccer expert from scratch.
 Hluteko asked him about the project and what inspired him to start it.
@@ -1387,16 +1417,19 @@ The chat between Hluteko and Tshediso appears to be a casual conversation betwee
 The conversation starts with Tshediso mentioning that he will show Hluteko what he does, and Hluteko responds with a playful "shiver me timbers." The conversation then shifts to Hluteko discussing her day, mentioning that she was feeling numb and overwhelmed by the noise around her.
 Tshediso responds with a morning greeting and a comment about Hluteko's daily routine.
 The conversation continues with Hluteko sharing her thoughts on various topics, including her feelings about people, relationships, and her own personal life.
+
 **Summary of Chat Between Hluteko and Tshediso - Part 2**
 As the conversation continues, Hluteko and Tshediso engage in a playful and flirtatious exchange.
 Hluteko mentions that she likes green grapes more than red grapes, and Tshediso responds by saying that grapes are grapes and they don't discriminate.
 The conversation then shifts to a discussion about apples, with Hluteko expressing her dislike for apples and Tshediso sharing his preference for top red apples.
 The conversation becomes more personal, with Hluteko and Tshediso sharing their thoughts on relationships, intimacy, and personal boundaries.
+
 **Summary of Chat Between Hluteko and Tshediso - Part 3**
 The conversation between Hluteko and Tshediso becomes more lighthearted and humorous.
 Hluteko mentions that she has been feeling exhausted and overwhelmed, and Tshediso responds with a playful comment about her needing to take a nap.
 The conversation then shifts to a discussion about food, with Hluteko mentioning that she has been craving wings and Tshediso sharing his love for making wings.
 The conversation continues with Hluteko and Tshediso engaging in a playful and flirtatious exchange, with Hluteko mentioning that she wants to hear Tshediso's poem and Tshediso responding with a promise to write one.
+
 **Summary of Chat Between Hluteko and Tshediso - Part 4**
 The final part of the conversation between Hluteko and Tshediso is a mix of playful and serious moments.
 Hluteko mentions that she has been feeling better, and Tshediso responds with a comment about being happy to see her in a better mood.
@@ -1415,6 +1448,7 @@ Tshediso responds by sharing his thoughts on the topic, and they engage in a lig
 The conversation then shifts to relationships, with Hluteko jokingly suggesting that she would tolerate bad sex if her partner makes up for it in other ways.
 Tshediso playfully responds by saying that he would never let that happen, and they engage in a banter about relationships and sex.
 They also discuss their personal preferences, with Hluteko expressing her love for pies and Tshediso sharing his dislike for pineapple on pizza.
+
 **Summary of Chat between Hluteko and Tshediso - Part 2**
 As the conversation continues, Hluteko and Tshediso delve into more personal and intimate topics.
 They discuss their thoughts on tattoos, marriage, and the concept of hell.
@@ -1425,6 +1459,7 @@ They also discuss the concept of boring people, with Tshediso defining a boring 
 Hluteko and Tshediso also engage in a lighthearted discussion about capitalism and the exploitation of workers.
 They joke about the idea of a "holy spirit" and Tshediso's supposed ability to be gentle with Hluteko.
 The conversation then shifts to the topic of food, with Hluteko expressing her love for pies and Tshediso sharing his dislike for certain types of pastry.
+
 **Summary of Chat between Hluteko and Tshediso - Part 3**
 As the conversation nears its end, Hluteko and Tshediso engage in a more serious and introspective discussion.
 They talk about the concept of being exhausted and drained from the demands of modern life.
@@ -1435,6 +1470,7 @@ They engage in a lighthearted discussion about the importance of rest and relaxa
 The conversation ends with Hluteko and Tshediso expressing their appreciation for each other's company and their desire to continue talking.
 They joke about Tshediso's new profile picture and Hluteko's love for pies.
 The conversation ends on a lighthearted and playful note, with the two individuals expressing their friendship and affection for each other.
+
 **Summary of Chat between Hluteko and Tshediso - Part 4**
 In the final part of the conversation, Hluteko and Tshediso engage in a more introspective and emotional discussion.
 They talk about the importance of being true to oneself and being honest in relationships.
